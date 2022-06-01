@@ -1,5 +1,5 @@
 # Eneba-partners
-![alt-текст](https://cdn.megabonus.com/images/shop_logo/origin/eneba.png)
+![alt-текст](https://gizchina.it/wp-content/uploads/2022/02/eneba-offerte-san-valentino-coppie-04-1200x675.jpg.webp)
 
 #### Want to make your own music, but have no experience with production? With Music Maker, you don't have to be a pro to make exciting music. Thanks to its easy-to-use interface, intuitive tools and the brand-new Song Maker AI, you'll be producing your own songs in no time. Explore a vast selection of sounds and loops for creating your own music – no previous experience required. And all that for free with Music Maker Free Edition. Start producing today and become part of our global community.
 
