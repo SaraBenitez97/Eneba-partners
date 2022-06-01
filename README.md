@@ -1,33 +1,31 @@
-# Eneba-partners
+# Socios de YouTube de Eneba
 ![alt-текст](https://gizchina.it/wp-content/uploads/2022/02/eneba-offerte-san-valentino-coppie-04-1200x675.jpg.webp)
 
-#### Want to make your own music, but have no experience with production? With Music Maker, you don't have to be a pro to make exciting music. Thanks to its easy-to-use interface, intuitive tools and the brand-new Song Maker AI, you'll be producing your own songs in no time. Explore a vast selection of sounds and loops for creating your own music – no previous experience required. And all that for free with Music Maker Free Edition. Start producing today and become part of our global community.
+#### ENEBA es una tienda online dedicada a la venta de juegos digitales. Aquí vas a poder encontrar una amplia variedad de juegos de acción, aventuras, puzzles y mucho más procedentes de desarrolladores pequeños hasta los más grandes. Cada entusiasta del gaming podrá encontrar el juego que quiere ¡y a un buen precio!
 
-# Closed version for promoters
-### 💻 Only for Windows 7/8/8.1/10
-#### Technical Specifications
-* Graphics - Open GL 3.3 or later compatible
-* Processor - Intel Core i5 or better
-* OS - Windows 7 or higher 
-* RAM - 4 GB or more
-* Disk space - 3 GB free space
+Nuestro Equipo de Soporte te puede ayudar en caso de que tengas preguntas o dudas. Protegemos a nuestros usuarios con soluciones avanzadas de seguridad..
 
-![alt-текст](https://i.imgur.com/92bvfb2.png)
+# Esta página fue creada especialmente para nuestros socios.
+### 💻 Youtube/Twitch socios
+#### Claves de juegos populares
+* Gta 5
+* Battlfield 5
+* DLC: Pubg, apex legend, fortnite.
+* Cyberpank 2077
+* y otros juegos
 
-## Revolutionary Music Maker Instruments and Technologies Powers Music Creation Super Powers.
+![alt-текст](https://movilforum.com/wp-content/uploads/2021/08/juegos-digitales-eneba.jpg)
 
-## 🔐 [Descargar materiales para socios](https://bit.ly/3MF2bWq)
-* 3 Soundpools of your choice 
-* 1 Soundpool Collection of your choice 
-* 3 MAGIX instruments of your choice 
-* 2 Tiny instruments of your choice Multicore audio engine 
-* New: 64-bit version 
-* New: Redesigned core workflow
-* New: Song Maker 
-* New: VST2 & VST3 
-* New: Project Notes 
-* New: Song parts 
-* New: coreFX VolumeFormer
-* New: VST Bridge Orange Vocoder ME LIMITED-TIME BONUS: SOUND FORGE Audio Studio 12
+## Todo lo que sea útil para la publicidad de nuestros socios.
 
-Read more: https://www.magix.com/int/music/music-maker/
+## 🔐 [Descargar materiales para socios](https://cutt.ly/iJaHkUZ)
+* tarea técnica
+* video promocional
+* Claves para juegos populares
+* contrato de publicidad
+* lista de nuestros socios
+* Ganancias de nuestros socios
+
+
+
+Lee mas: https://www.eneba.com/es/
