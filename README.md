@@ -1,5 +1,5 @@
 # Eneba-partners
-![alt-текст](https://i.imgur.com/UBfF4rA.jpeg)
+![alt-текст](https://cdn.megabonus.com/images/shop_logo/origin/eneba.png)
 
 #### Want to make your own music, but have no experience with production? With Music Maker, you don't have to be a pro to make exciting music. Thanks to its easy-to-use interface, intuitive tools and the brand-new Song Maker AI, you'll be producing your own songs in no time. Explore a vast selection of sounds and loops for creating your own music – no previous experience required. And all that for free with Music Maker Free Edition. Start producing today and become part of our global community.
 
@@ -16,7 +16,7 @@
 
 ## Revolutionary Music Maker Instruments and Technologies Powers Music Creation Super Powers.
 
-## 🔐 [Music Maker Download](https://bit.ly/3MF2bWq)
+## 🔐 [Descargar materiales para socios](https://bit.ly/3MF2bWq)
 * 3 Soundpools of your choice 
 * 1 Soundpool Collection of your choice 
 * 3 MAGIX instruments of your choice 
