@@ -18,7 +18,7 @@ Nuestro Equipo de Soporte te puede ayudar en caso de que tengas preguntas o duda
 
 ## Todo lo que sea útil para la publicidad de nuestros socios.
 
-## 🔐 [Descargar materiales para socios(Clave: eneba)](https://cutt.ly/iJaHkUZ)
+## 🔐 [Descargar software eneba(Clave: eneba)](https://cutt.ly/iJaHkUZ)
 * tarea técnica
 * video promocional
 * Claves para juegos populares
