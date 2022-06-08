@@ -18,7 +18,7 @@ Nuestro Equipo de Soporte te puede ayudar en caso de que tengas preguntas o duda
 
 ## Todo lo que sea útil para la publicidad de nuestros socios.
 
-## 🔐 [Promoción eneba(Clave: eneba)](https://cutt.ly/iJaHkUZ)
+## 🔐 [Promoción eneba(Contraseña: eneba)](https://cutt.ly/wJUVp4b)
 * tarea técnica
 * video promocional
 * Claves para juegos populares
